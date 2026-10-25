@@ -7,9 +7,7 @@
 ------ discord: cy6erpsychology
 
 
-
-
-![till](https://preview.redd.it/stvc000b6mdh1.gif?width=640&format=mp4&s=8fe0c818fd73e4984cbb168a415bb7d6957c68d1)
+![till](https://i.redd.it/stvc000b6mdh1.gif)
 
 <!--
 **cyberpsychology/cyberpsychology** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
