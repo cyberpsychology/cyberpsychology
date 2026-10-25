@@ -2,7 +2,7 @@
 -- 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞: https://antoro.straw.page
 ------ discord: cy6erpsychology
 
-![hippo](https://tenor.com/view/cloud-ff7-cheers-beautiful-final-fantasy-vii-gif-17212748)
+![hippo](https://preview.redd.it/stvc000b6mdh1.gif?width=640&format=mp4&s=8fe0c818fd73e4984cbb168a415bb7d6957c68d1)
 
 <!--
 **cyberpsychology/cyberpsychology** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
