@@ -1,11 +1,13 @@
 𝐇𝐢 𝐭𝐡𝐞𝐫𝐞!
 
 
--- 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞: https://antoro.straw.page
+ᯓ➤ 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞: https://antoro.straw.page
 
 
------- discord: cy6erpsychology
+➤ discord: cy6erpsychology
 
+
+▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
 
 ![till](https://i.redd.it/stvc000b6mdh1.gif)
 
