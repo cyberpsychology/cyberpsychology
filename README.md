@@ -4,7 +4,7 @@
 ᯓ➤ 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞: https://antoro.straw.page
 
 
-        ➤ discord: cy6erpsychology
+➤ discord: cy6erpsychology
 
 
 
